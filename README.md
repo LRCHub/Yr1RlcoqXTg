@@ -1,4 +1,4 @@
-# Wuthering Waves、Forts和Obadiah Brown-Beach – Against the Tide(Original Game Soundtrack)
+# Wuthering Waves、Forts、Obadiah Brown-Beach – Against the Tide(Original Game Soundtrack)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
